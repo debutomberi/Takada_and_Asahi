@@ -3,3 +3,6 @@
 # SANEEEEEEES!
 * SANEES
 * Sr pelo
+
+
+* 肘が確定する
